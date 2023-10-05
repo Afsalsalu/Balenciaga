@@ -1,2 +1,2 @@
-# Balenciaga
+# Balenciaga 🛍️
  https://afsalsalu.github.io/Balenciaga/
